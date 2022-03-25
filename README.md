@@ -1,2 +1,5 @@
-# growtopia-cheat-engine-free-gems-hacks
-Growtopia cheat engine free gems Hacks 2022 guide
+# Growtopia cheat engine free gems Hacks 2022
+
+Growtopia cheat engine free gems Hacks 2022 guide - Once you find the landing platform, activate it so that the next time you want to take an adventure, you can use the map to walk around. Your character will fly back to your newly unlocked landing platform, closer to the area of interest. Well, it's not a way to get waste, but it's important. The landing pad allows you to fly there by jet and walk there without running out of the landing place of the scraper. As the saying goes: one person's garbage is another person's wealth. All the treasures in this world are fragments. You'll never know what you need it to do, and you'll appreciate having a project surplus. Every map is littered with waste. Finding them is one thing, but getting waste safely from them is another. Before you interact with them, make sure there are no enemies around you that will screw you up! The box is like a waste pile, but there is much less waste in it. They also take longer to open, so be careful! If you happen to find any of them, think of yourself as gems.
+
+<a href="https://windmod.icu/growtopia/">go here</a>
